@@ -1,0 +1,2 @@
+# farizkynp.com
+Personal Website
